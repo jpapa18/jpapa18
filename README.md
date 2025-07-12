@@ -1,4 +1,4 @@
-## Hi there 👋, my name is Jerald :grin:
+## Hi there 👋, my name is Jerald 
 
 - 🌱 I’m a life-long student. Currently, I'm learning things that are :cloud: related.
 - ⚡Fun fact: I love watching anime
